@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. STAN TWICE
+  - STAN ITZY
+  - STAN THE9
+  - STAN 7SENSES
+  - STAN RED VELVET
